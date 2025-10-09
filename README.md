@@ -1,4 +1,4 @@
-### This whole word has problems. I am here to solve them and be of service.
+### This whole world has problems. I am here to solve them and be of service.
 
 <!--
 **Kosher2040/Kosher2040** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
